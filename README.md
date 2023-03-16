@@ -6,5 +6,8 @@
 
 
 
-Uploading Parallax Portfolio - Google Chrome 2023-03-16 17-53-22 (1).mp4…
+
+
+
+https://user-images.githubusercontent.com/83406066/225706959-7f2a8b75-7512-4344-b51b-8fbf29a1f9e0.mp4
 
